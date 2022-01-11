@@ -1,2 +1,2 @@
-# lesson11-end-of-the-training-practice
+# https://eto-dedog.github.io/lesson11-end-of-the-training-practice
  
